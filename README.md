@@ -8,6 +8,6 @@ $\text{\color{#efddc5}{ ⌒}}$ $\text{\color{#134d16}{ 𝗕}}$ $\text{\color{#ef
 ┼─ $\text{\color{#efddc5}{he}}$ $\text{\color{#bbbdbf}{★}}$ $\text{\color{#276f35}{him}}$ 
 </p>
 <p align="center">
-<img src="https://file.garden/Ztfe_nOngl0iXHfk/Untitled1962_20250425141519.png" width="400" height="400"/><br>
+<img src="https://file.garden/Ztfe_nOngl0iXHfk/Untitled1962_20250425141519.png" width="200" height="200"/><br>
   <img src="https://file.garden/Ztfe_nOngl0iXHfk/Untitled42_20250425141652.png" width="750" height="100"/>
 </p>
