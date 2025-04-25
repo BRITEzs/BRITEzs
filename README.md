@@ -1,5 +1,5 @@
 <p align="center">
-$\text{\color{#fde6c8}{" make it wild . "}}$ <br>
+$\text{\color{#efddc5}{" make it wild . "}}$ <br>
   <img src="https://file.garden/Ztfe_nOngl0iXHfk/Untitled38_20250425141418.png"/>
 </p>
 <p align="center">
