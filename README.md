@@ -6,5 +6,6 @@ $\text{\color{#efddc5}{ ⌒}}$ $\text{\color{#134d16}{ 𝗕}}$ $\text{\color{#ef
 </p>
 <p align="center">
 <img src="https://file.garden/Ztfe_nOngl0iXHfk/Untitled38_20250425141418.png" width="700"/><br>
+[— strawpage ,,](https://britezs.straw.page/)
   <img src="https://file.garden/Ztfe_nOngl0iXHfk/Untitled42_20250425141652.png" width="750"/><br>
 </p>
