@@ -8,5 +8,6 @@ $\text{\color{#efddc5}{ ⌒}}$ $\text{\color{#134d16}{ 𝗕}}$ $\text{\color{#ef
 <img src="https://file.garden/Ztfe_nOngl0iXHfk/Untitled38_20250425141418.png" width="700"/><br>
 <a href="https://britezs.straw.page/" target="_blank" style="text-decoration: none;">strawpage</a> ★ <a href="https://brite.atabook.org/" target="_blank" style="text-decoration: none;">atabook</a><br>
   <img src="https://file.garden/Ztfe_nOngl0iXHfk/Untitled42_20250425141652.png" width="750"/><br>
+  <img src="https://komarev.com/ghpvc/?username=BRITEzs&color=green" alt="Profile Views"/><br>
 </p>
-![](https://komarev.com/ghpvc/?username=BRITEzs&color=green)
+
